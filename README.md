@@ -1,0 +1,1 @@
+# sovellusprojekti_ohjelmistokehitysK_2024
